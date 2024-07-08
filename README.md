@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Kio Solutions<br>⚡ (´･ω･`)?
+🔭 I’m currently working on [insert your company here]<br>⚡ (´･ω･`)?
 
 
 ## 🌐 Socials:
