@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on [insert your company here]<br>⚡ (´･ω･`)?
+🔭 I’m currently working on... ok i'm looking for a job now ⚡ (´･ω･`)?
 
 
 ## 🌐 Socials:
